@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jkr02
-- 🖥️ I am interested in Artificial Inteligence and technological innovations
+- 🖥️ I am interested in Artificial Inteligence, technological innovations, cosmonautics and astronomy
 - 🏎️ My hobbies are Formula1, playing basketball, cycling, mountain climbing
 - 👨‍🎓 I'm in the third year of computer science studies at AGH
 - 📫 How to reach me?
